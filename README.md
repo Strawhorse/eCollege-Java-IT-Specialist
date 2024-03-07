@@ -14,3 +14,7 @@ Issues always arise with online courses:
 
 Why are you not finished??!??!??!??!?!
 
+Received reply (6/3/2024):
+![Uploading image.png…]()
+
+
