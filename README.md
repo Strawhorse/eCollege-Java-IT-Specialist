@@ -10,6 +10,8 @@ Even some core basics aren't bad... not sure about some of the questions, though
 Let's keep going:
 ![image](https://github.com/Strawhorse/eCollege-Java-IT-Specialist/assets/47267071/4901165e-0137-4069-b3e6-654abc7ff45e)
 
+Going going ...
+![image](https://github.com/Strawhorse/eCollege-Java-IT-Specialist/assets/47267071/2246dd62-7606-41e4-bda1-bd9af72651e5)
 
 
 
