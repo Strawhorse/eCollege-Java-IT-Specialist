@@ -13,5 +13,7 @@ Let's keep going:
 Going going ...
 ![image](https://github.com/Strawhorse/eCollege-Java-IT-Specialist/assets/47267071/2246dd62-7606-41e4-bda1-bd9af72651e5)
 
+More back to basics (though well-presented)
+![image](https://github.com/Strawhorse/eCollege-Java-IT-Specialist/assets/47267071/0214c61c-d3f7-4297-813a-fe713504ea0f)
 
 
